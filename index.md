@@ -36,3 +36,8 @@ Not having the patience or drive to carefully study the moves of players I admir
 
  <img src="KJ.gif"
      style="display:block;float:none;margin-left:auto;margin-right:auto;width:100%">
+     an exaple of me (on the righ) trying to copy a trick and having to substitute for moves more comfortable to me and ending up with a composition that is entirely my own.
+     
+ So what to take away
+ 
+ # A BAD COPY MAKES AN ORIGINAL
