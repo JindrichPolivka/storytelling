@@ -23,6 +23,6 @@ A childrens drawing of a bike - Me or You would be able to draw it more accurate
 And the child can do it - create something new - without trying. Maybe we can try and set similar conditions for us, to get to this accidental creation.
 Recreating something from an incomplete recall of memory or without proper resources. Allowing for mistakes to be made easily.
 
-Setting out to make something new is difficult but letting it happen might be easier
+Setting out to make something new is difficult but letting it happen might be easie
 
 In my personal experience i come across this often in my hobbies
